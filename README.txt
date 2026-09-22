@@ -1,0 +1,1 @@
+Open index.html. Profile photo and resume are already included. Contact: 24manojbca@gmail.com | +91 97158 10174 | LinkedIn: linkedin.com/in/manojkumar-p-m-10498831b
